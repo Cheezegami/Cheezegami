@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+I'm Luna. I love finding ways to combine technology and art. I strive to train myself in having both artistic and technical skills and finding inventive ways to combine these skills.
+
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Cheezegami&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
 
 <!--
