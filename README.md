@@ -4,6 +4,8 @@ I'm Luna. I love finding ways to combine technology and art. I strive to train m
 
 I'm currently graduating the Utrecht School of the Arts!
 
+For more information about my projects, please check out https://www.artstation.com/RunicPixels 
+
 ~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Cheezegami&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
