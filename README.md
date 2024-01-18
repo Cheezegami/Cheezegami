@@ -2,8 +2,6 @@
 
 I'm Luna. I love finding ways to combine technology and art. I strive to train myself in having both artistic and technical skills and finding inventive ways to combine these skills. I've started out as a pixel artist, and I love to push that medium with a variety of technologies.
 
-I'm currently graduating the Utrecht School of the Arts!
-
 For more information about my projects, please check out https://www.artstation.com/RunicPixels 
 
 ~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~=~
